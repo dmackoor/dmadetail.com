@@ -1,1 +1,0 @@
-# dmadetail.com
